@@ -28,7 +28,7 @@ UI/UX design for student-focused platforms
 
 Documentation & README writing
 
-How to reach me: gulshannadaf789@gmail.com
+How to reach me: daneshwarisusaladi286@gmail.com
 
 Fun fact: I enjoy turning complex tech into creative, usable solutions!
 
